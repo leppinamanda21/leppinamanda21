@@ -1,6 +1,6 @@
 - 👋  oi eu sou @leppinamanda21
 - 👀eu tenho 16 ...
-- 🌱 gosto de bts vai por mim sua opiniao não me muda nada e não me importa 
+- 🌱 gosto de bts vai por mim sua opiniao não me muda nada e não me importa  
 - 💞️  ...
 - 📫 obejetivos; SOBREVIVER AO NOVO EMSINO MEDIO 
  
